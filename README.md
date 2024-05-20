@@ -14,6 +14,7 @@
 Atividade 1: Trello 
 - [Grupo](link)
 -[Individual](https://trello.com/invite/b/pIrH5mCU/ATTI0dcf49f3ecbe9bb069ce60bee334c7ad1670BC64/ds-atividade)
+
 Atividade do Miro 
 - [Individual](https://miro.com/welcomeonboard/NElvVUV1SHNhcWYxY0htR1d5UG5EQmN1QVcycUo4MDFUTkhIcDc3TzBTZXBsUHF5Wjlvak53ZzBQaHRublUzWHwzNDU4NzY0NTg4OTk2OTExOTI5fDI=?share_link_id=345341898445)
 
